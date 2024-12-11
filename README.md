@@ -1,1 +1,1 @@
-# linuxtry
+#perlu perjuangan
